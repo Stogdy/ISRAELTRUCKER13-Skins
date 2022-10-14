@@ -1,4 +1,4 @@
-# ISRAELTRUCKER13-Skins
+# Stogdy-Skins
 
 My fantastic osu! skins 😎
 
