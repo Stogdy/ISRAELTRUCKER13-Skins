@@ -5,6 +5,7 @@ My fantastic osu! skins 😎
 If u want my skins that are not here feel free to dm me :)
 Stogdy#1265 
 
+MY BEST SKIN RIGHT HERE!!! DOWNLOAD FOR BEST SKIN EVER!!
 
 https://cdn.discordapp.com/attachments/1151591611164270763/1169273321733505034/Stogdy_rafis_idol_edit.osk?ex=655e0823&is=654b9323&hm=f4918e679b475933e0fa8654ec13f8df738bdf6448f944e9cedc7880468766c7&
 
